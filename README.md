@@ -1,2 +1,4 @@
-# memorandum
-memorandum
+# email about kingfast
+客服邮箱：hellokingssr@gmail.com
+务必记下来，防失联，自动回复最新网址
+未来某个时间100％用得上
